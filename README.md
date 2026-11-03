@@ -12,7 +12,7 @@ MBSTU Mathematics | Research: Thermal Modeling in 3D ICs (FDM) | NYCU Taiwan Asp
 ### 2. Workplace Communication Essentials
 - **Issuer:** Passport to Earning Bangladesh, UNICEF
 - **Date:** Aug 14, 2026
-- **File:** Will be added
+- **File:** IMG_20261103_171928.jpg
 - **Skills:** Professional Communication, Presentation for Research Conference
 
 ## 🔬 Research Focus
